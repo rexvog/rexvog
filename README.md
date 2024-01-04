@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @rexvog .
+- 👋 Hi, I’m @rexvog 
 - 👀 I’m interested in
 - 🌱 I’m currently learning .
 - 💞️ I’m looking to collaborate on 
